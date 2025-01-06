@@ -29,3 +29,4 @@ Det underlättar att vara fingerfärdig.
 ### Finns det någonting mer som underlättar?
 Inte riktigt, men man kan köpa speciella kortlekar. Jag brukar köpa på kortleksbolaget.se och
 om ni vill kolla in det så kan ni klicka [här](https://kortleksbolaget.se).
+
